@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LaurensBeYoung
-- 👀 I’m now a graduate student in UC San Diego
+- 👀 I’m now a Chinese graduate student in UC San Diego
 - 📫 How to reach me：bashine1998@outlook.com
 
 <!---
